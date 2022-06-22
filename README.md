@@ -12,5 +12,5 @@
   <img align="center" height="80" width="80" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/mysql/mysql-original-wordmark.svg" />
 <img align="center" height="80" width="80" src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/pandas/pandas-original-wordmark.svg" />
   
-  ![Dudss (3) (1)](https://user-images.githubusercontent.com/106899960/174947796-66bffe71-828b-425c-9d02-570f9dc2effd.gif)
 
+<img src="[[https://www.canva.com/design/DAFES4hK_DM/watch](https://www.canva.com/design/DAFES4hK_DM/watch?utm_content=DAFES4hK_DM&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink](https://www.canva.com/design/DAFES4hK_DM/BziWA6Zf_XghHSclFFcy2Q/edit?utm_content=DAFES4hK_DM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)" width="200" height="200">
